@@ -1,0 +1,6 @@
+- 👋 Hi, I’m ALI
+- 👀 I’m interested in AI specially Computer vision
+- 🌱 I’m currently learning  HOW to inciate the right learning path to achieve an AI task
+- 💞️ I’m looking to collaborate with Big software companies like Microsoft/Dell/
+- 📫  this is my number for anyone who wants to contact me :) 
+- +201067834249
